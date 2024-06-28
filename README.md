@@ -1,1 +1,1 @@
-# Dr.SachinBorse-panaiclonic.com
+# Dr.SachinBorse-panaiclinic.com
